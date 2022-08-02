@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Yuling-Jin
-- 👀 I’m interested in camping.
+- 👀 I’m interested in Camping/Glamping.
 - 🌱 I’m currently learning Español.
-- 💞️ I’m looking to collaborate on ...(Not prepared yet)
+- 💞️ I’m looking to collaborate on ...(I'm not ready yet...)
 - 📫 How to reach me ...(Leave comments please!!)
 
 <!---
